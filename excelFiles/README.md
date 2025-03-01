@@ -1,1 +1,1 @@
---- Extract from the ZIP file
+Extract from the ZIP file
